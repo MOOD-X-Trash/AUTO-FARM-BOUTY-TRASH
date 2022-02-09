@@ -1,0 +1,2 @@
+# AUTO-FARM-BOUTY-TRASH
+ez
